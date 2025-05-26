@@ -1,5 +1,5 @@
 # Home
 ## Msizi Mthimkhulu
-### Data Analyst|YLED Alumnus|Investor|
+#### Data Analyst|YLED Alumnus|Investor|
 
 
